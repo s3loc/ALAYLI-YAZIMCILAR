@@ -17,7 +17,7 @@ Yeni açılan Alaylı Yazılımcılar Reddit topluluğumuza hepinizi davet ediyo
 📝 Katılmak İçin
 
 Topluluğumuza katılmak için buraya tıklayın ve hemen aramıza katılın!
-https://www.reddit.com/r/alayliyazilimcilar/👥
+https://www.reddit.com/r/alayliyazilimcilar/
 
 
 Sizleri topluluğumuzda görmek için sabırsızlanıyoruz!
